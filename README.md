@@ -20,5 +20,5 @@ Now, I'm expanding my journey into the world of **software development** — I w
 - Blending my background in **human development** with new tech skills  
 
 ### 📫 Let's connect
-- [LinkedIn](https://www.linkedin.com/in/isissiqueira/)  
+- [LinkedIn](https://www.linkedin.com/in/isis-andrade/)  
 - [Instagram](https://www.instagram.com/porisissiqueira/)
